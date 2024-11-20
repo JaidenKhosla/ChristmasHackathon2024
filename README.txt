@@ -12,7 +12,7 @@ IN GAME (in no order):
 7. Collect a gift
 8. Try to survive for 120 seconds+
 
-We hope you enjoy the game! - Jaiden Khosla, Nicholas Lovely
+We hope you enjoy the game! - Jaiden Khosla, Nicholas Lovely, Sid V.
 
 CREDITS:
 
